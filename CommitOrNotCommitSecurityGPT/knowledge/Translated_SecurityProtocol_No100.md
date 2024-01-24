@@ -1,0 +1,1 @@
+[Translated content of the document goes here...]
